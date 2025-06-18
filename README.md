@@ -5,9 +5,9 @@
 - 🌱 I’m currently learning 
 - 💞️ I’m looking to collaborate on 
 
-- 📫 How to reach me 
+- 📫 How to reach me: @ihateliving53 on x.com
 
-- 😄 Pronouns:
+- 😄 Pronouns: it/was
 
-- ⚡ Fun fact: ethan
+- ⚡ Fun fact: I was arrested on the 12th March, 2018 for disclosed reasons.
 
