@@ -1,13 +1,13 @@
 - 👋 Hi, I’m @EthanJones317
 
-- 👀 I’m interested in gay porn
+- 👀 I’m interested in 
 
-- 🌱 I’m currently learning gay porn
-- 💞️ I’m looking to collaborate on gay porn
+- 🌱 I’m currently learning 
+- 💞️ I’m looking to collaborate on 
 
-- 📫 How to reach me gayporn@pornhub.com
+- 📫 How to reach me 
 
-- 😄 Pronouns: gay/porn
+- 😄 Pronouns:
 
 - ⚡ Fun fact: ethan
 
