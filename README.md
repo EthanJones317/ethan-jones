@@ -1,13 +1,13 @@
-- 👋 Hi, I’m @EthanJones317
+- 👋 Hi
 
-- 👀 I’m interested in 
+- 👀 
 
-- 🌱 I’m currently learning 
-- 💞️ I’m looking to collaborate on 
+- 🌱 I’m currently 
+- 💞️ I’m looking
 
-- 📫 How to reach me: @ihateliving53 on x.com
+- 📫 How to reach me
 
 - 😄 Pronouns: it/was
 
-- ⚡ Fun fact: I was arrested on the 12th March, 2018 for disclosed reasons.
+- ⚡ Fun fact: I was arrested on the 12th
 
